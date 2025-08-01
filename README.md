@@ -77,7 +77,7 @@ Parmi les mémoires soutenus :
 ## 📢 Contact
 Vous avez des questions, vous souhaitez en discuter ou collaborer ?
 
-👤 Me contacter directement sur [LinkedIn](www.linkedin.com/in/ladji-dalan-coulibaly-coulibaly-724a24374) 
+👤 Me contacter directement sur [www.linkedin.com/in/ladji-dalan-coulibaly-coulibaly-724a24374](www.linkedin.com/in/ladji-dalan-coulibaly-coulibaly-724a24374) 
                             ou par mail : dalancoulibaly2910@gmail.com 
 
 #Démystifions les maths en les rendant accessibles à tous. 🧮
